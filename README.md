@@ -1,1 +1,1 @@
-# part-1
+# part-1 of my slowly but surely round 1, idk how much it will take to finish the rest of the pages with college and other personal stuff, so im just gonna post the ones i had done already (i also reworked a lot of them bcos i wasnt very happy with the first ones) i know its not a lot after all this time but i dont wanna keep my opponent waiting for too much (nero pls i promise ill finish it dont punch me 😭😭😭😭)
